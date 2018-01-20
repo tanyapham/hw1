@@ -4,11 +4,17 @@ My name is **Quynh Thu**, but my friends like to call me *Tanya*. I was born on 
 I'd lived in Vietnam till 3 years old and then my parents left me and my elder sister to my aunt and uncle. As my family was very poor and they had to leave us and move to Russia to make money. So, we lived without our parents till I turned 9. My parents decided that we should move to Russia with them.  And now, *we are living happy together in Moscow*. 
 As I mentioned before, I love *drawing* and my dream was to become fashion designer. But, unfortunately, I couldn't enroll to the university that I wanted and the only thing I could do is to enroll to **HSE** as a linguist. Nevertheless, I’m not upset at all, I like it here, in **HSE**. Though, I’m not giving up on my dream because I will do it when I finish my bachelor degree. 
 
-Beside drawings, I have a lot of different hobbies, such as:
-+ Photography
-+ Reading
-+ Listening to music
-+ Cooking
+Beside drawings, I have a lot of different hobbies and I like a lot of different things, so down below, you can see my list of what I like and what I don't like:
+
+| Like | Hate |
+| --- | --- |
+| **Drawing** | ~~Boring movies~~ |
+| Taking Photos | ~~Violence~~ |
+| Music | ~~Bullying~~ |
+| Cinema | ~~Arguing~~ |
+| Baking | ~~Stress~~ |
+
+
 
 ## My life goals are definitely: 
 + *Enroll to British Higher School of Art and Design*
@@ -23,5 +29,8 @@ By the way, I’ve painted a lot of *pictures* since 2015 and down below you can
 
 ![](https://pp.userapi.com/c623616/v623616366/46749/SthiFnRCGVQ.jpg) *14.08.2016 /8 hours /isograph pen*
 
-#### So, as you can see I’m very keen on art and I will definitely get what I want and become what I want to be. 
 
+## So, as you can see I’m very keen on art and I will definitely get what I want and become what I want to be. 
+
+#### My contact:
++ <innercircle0102@gmail.com>
