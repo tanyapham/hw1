@@ -17,6 +17,11 @@ Beside drawings, I have a lot of different hobbies, such as:
 + *Meet a lot of famous designer and models*
 + ***Become a successful person!***
 
-By the way, I’ve painted a lot of *pictures* since 2015 and down below you can see some of paintings and photos that I took during travelling:
-! [] (https://pp.userapi.com/c623616/v623616366/46739/i_frQ-WiwyI.jpg 
+By the way, I’ve painted a lot of *pictures* since 2015 and down below you can see some of my paintings:
+
+![](https://pp.userapi.com/c636719/v636719366/17bb0/NOXZI4jUDtg.jpg) *17.08.2016 /10 hours /acrylic*
+
+![](https://pp.userapi.com/c623616/v623616366/46749/SthiFnRCGVQ.jpg) *14.08.2016 /8 hours /isograph pen*
+
+#### So, as you can see I’m very keen on art and I will definitely get what I want and become what I want to be. 
 
